@@ -1,2 +1,2 @@
 # portfolio
-Portfolio of Ms. Raju Ranjan Gupta
+Portfolio of Mr. Raju Ranjan Gupta
